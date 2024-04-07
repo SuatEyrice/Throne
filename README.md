@@ -1,6 +1,6 @@
 # Throne
-# ⚠️⚠️⚠️ WARNING: Try not to damage your eyes! ⚠️⚠️⚠️
-
+# ⚠️ WARNING: Try not to damage your eyes! ⚠️
+# ⚠️ Search about the "Sun gazing" for your own safety! ⚠️
 ---
 
 `Turn your face to Sun, and try to notice lights shaped like wings on your eyelashes`
